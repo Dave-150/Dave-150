@@ -1,0 +1,8 @@
+- 👋 Oi, eu sou @Dave-150
+- 👀 Estou interessado em atuar na areá de desenvolvimento
+- 🌱 Estou aprendendo as metodologia de desenvolvimento e suas principais linguagens de desenvolvimento tanto pra web quanto para criação de Softwares
+- 💞️ Estou procurando colaborar em projetos de desenvolvimento
+- 📫 Segue abaixo os modos de como chegar até mim:
+- E-mail: deiversonventura@gmail.com
+- Instagram: @Um_link_hackeado
+- Linkedin: Dave Ventura
